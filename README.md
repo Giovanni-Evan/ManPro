@@ -6,5 +6,5 @@ Matkul Manpro terdapat 3 dosen pengampuh
 bernama ALBERTUS DWIYOGA WIDIANTORO
 , BERNARDINUS HARNADI
 , dan T. BRENDA CH
-Matkul ManPro di hari jumat 
+Matkul ManPro di hari jumat ,
 jam 08.00
